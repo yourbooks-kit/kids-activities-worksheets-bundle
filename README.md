@@ -1,0 +1,2 @@
+About this bundle
+The 15,000+ Kids Activities Worksheet Bundle is an all-in-one preschool worksheet bundle of printable PDFs for children aged 2–10. It includes alphabet and numbers worksheets, tracing worksheets, coloring pages, sight words, flashcards, puzzles, reward charts and more, so parents in India can build a screen-free kids activity printables routine at home. Print as needed and reprint for repeated practice, subject to bundle usage terms.
